@@ -1,0 +1,59 @@
+# Taylor Swift – Is It Over Now? (Taylor's Version) (From The Vault)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:23.44] Once the flight had flown (ah-ha)
+[00:27.41] With the wilt of the rose (ah-ha)
+[00:33.28] I slept all alone (ah-ha)
+[00:37.53] You still wouldn't go
+[00:48.03] 
+[00:42.13] Let's fast forward to 300 takeout coffees later
+[00:46.63] I see your profile and your smile on unsuspecting waiters
+[00:51.68] You dream of my mouth before it called you a lying traitor
+[00:56.65] You search in every maiden's bed for something greater
+[01:00.60] Baby, was it over when she laid down on your couch?
+[01:05.45] Was it over when he unbuttoned my blouse?
+[01:10.49] "Come here," I whispered in your ear in your dream as you passed out
+[01:15.18] Baby, was it over then
+[01:19.89] And is it over now?
+[01:29.39] 
+[01:25.68] When you lost control (ah-ha)
+[01:30.71] Red blood, white snow (ah-ha)
+[01:35.63] Blue dress on a boat (ah-ha)
+[01:40.67] Your new girl is my clone
+[01:53.17] 
+[01:44.66] And did you think I didn't see you? There were flashing lights
+[01:46.66] At least I had the decency to keep my nights out of sight
+[01:49.81] Only rumors 'bout my hips and thighs, and my whispered sighs, oh Lord
+[01:53.74] I think about jumping
+[01:55.73] Off of very tall somethings
+[01:57.97] Just to see you come running
+[02:00.82] And say the one thing I've been wanting, but no
+[02:24.32] 
+[02:04.46] Let's fast forward to 300 awkward blind dates later
+[02:08.39] If she's got blue eyes, I will surmise that you'll probably date her
+[02:13.34] You dream of my mouth before it called you a lying traitor
+[02:17.90] You search in every model's bed for something greater, baby
+[02:23.26] Was it over when she laid down on your couch?
+[02:27.56] Was it over when he unbuttoned my blouse?
+[02:32.12] "Come here," I whispered in your ear in your dream as you passed out
+[02:36.98] Baby, was it over then
+[02:40.47] And is it over now?
+[02:49.97] 
+[02:51.89] Oh, oh
+[02:55.82] Oh, oh
+[03:01.61] Think I didn't see you? There were flashing lights
+[03:03.32] At least I had the decency to keep my nights out of sight
+[03:06.19] Only rumors 'bout my hips and thighs, and my whispered sighs, oh Lord
+[03:10.37] I think about jumping
+[03:12.32] Off of very tall somethings
+[03:14.74] Just to see you come running (running)
+[03:17.46] And say the one thing I've been wanting, but no
+[03:40.96] 
+[03:21.01] (Flashing lights, oh oh)
+[03:33.01] 
+[03:26.31] Let's fast forward to 300 takeout coffees later
+[03:31.95] I was hoping you'd be there
+[03:34.81] And say the one thing I've been wanting, but no
+```
